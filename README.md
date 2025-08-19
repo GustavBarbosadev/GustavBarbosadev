@@ -1,4 +1,4 @@
-## Opa! Aqui é o Gustavo 😎 
+## Olá! Sou o Gustavo 😎 Bem vindo ao meu perfil :)
 <br>
   
 <div>
